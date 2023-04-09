@@ -1,4 +1,4 @@
-founder of e-forcer
+insanlarla arkadaş olmak için onlara zarar veren birisi
 
 [![Discord](https://img.shields.io/badge/Discord-%237289DA.svg?logo=discord&logoColor=white)](https://discord.gg/ozurdilerim) 
 
