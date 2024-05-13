@@ -1,4 +1,4 @@
-insanlarla arkadaş olmak için onlara zarar veren birisi
+acı, insanı arındırır ve özgür kılar
 
 [![Discord](https://img.shields.io/badge/Discord-%237289DA.svg?logo=discord&logoColor=white)](https://discord.gg/ozurdilerim) 
 
